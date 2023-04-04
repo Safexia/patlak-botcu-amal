@@ -32,8 +32,8 @@ ekibe çevirerek bi bok yaptığını sanan ucube passenger
 ![image](https://cdn.discordapp.com/attachments/1009804086293565501/1092760190417383525/aynenpasat.png)
 acarı çekiyorsun olay kapanıyor dimi passenger birşey demicem yanlış anlaşılmasın acarla sorunum yok
 sadece bu ucubenin acarın ismini kullanarak nasıl piyasada gezdiğini göstermek istedim
-![image]()
-![image]()
+![image](https://camo.githubusercontent.com/bede5f123b0b0c484a085e5240d375435d87a0b2db4d0fd2b5e56819d3beeba0/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f313032353436353433363330323733373530392f313037353430373632313834343132333730392f70657373656e676572312e706e67)
+![image](https://camo.githubusercontent.com/df4244dbc3b2a1cda9da53bca5ec494b5185b0723b84c8743e7a661216e322d1/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f313032353436353433363330323733373530392f313037353430383431383335303833373736302f6161616161616161612e706e67)
 ![image]()
 ![image]()
 
