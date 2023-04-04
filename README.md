@@ -20,7 +20,6 @@ Bu Repodaki Aslan Kardeşlerim `♆ Bestcim#0023` `cartelizm#1000`
 ![image](https://cdn.discordapp.com/attachments/1009804086293565501/1092733722773700719/haydapasats.png)
 ![image](https://cdn.discordapp.com/attachments/1009804086293565501/1092733723025346601/takachibotss.png)
 ![image](https://cdn.discordapp.com/attachments/1009804086293565501/1092733723264434216/pasatyapmabole.png)
-ekibe çevirerek bi bok yaptığını sanan ucube passenger
 ![image](https://cdn.discordapp.com/attachments/1009804086293565501/1092733723725807717/agabeeepasat.png)
 ![image](https://cdn.discordapp.com/attachments/1009804086293565501/1092733723922931802/olurolurpasat.png)
 ![image](https://cdn.discordapp.com/attachments/1009804086293565501/1092733752343547914/pasatciks.png)
