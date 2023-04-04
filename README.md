@@ -1,5 +1,4 @@
-#Bilgilendirme
-
+BILGILENDIRME
 
 Selam Bu Repoda Ezik Büzük Aptal Botçularınızı Azcık Ezicez
 passenger şahane isiminde arkadaş hiç bir sik bilmeyen malın tekidir ondan bundan bot dilenip sonra
